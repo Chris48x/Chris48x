@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chris48x
+- 👀 Plex / Discord / Bots / Ai / Data Hording 
+- 🌱 Learning Python / C++ 
+- 💞️ Anything Interesting / Server Related
+- 📫 https://steamcommunity.com/id/l9I/
